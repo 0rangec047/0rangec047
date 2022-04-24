@@ -7,6 +7,8 @@
 -   Youtube: Orange Coat  (No channel yet)
 -   Twitter: Orange Coat
 -   Instagram: 0rangec047
+-   Discord: Orange Coat#6214
+-   Server: https://discord.gg/wxzYFKNh4v
 -   Gonna Add More Sometime Later!
 
 <!---
